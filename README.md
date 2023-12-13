@@ -1,7 +1,7 @@
 <h1 align="center">call me ecarvalho99</h1>
 <h3 align="center">curious mind</h3>
 
-- 🔭 **Work** Ask for my CV
+- 🔭 **Work** ask for my CV: 99ecarvalho aaat proton.me
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
